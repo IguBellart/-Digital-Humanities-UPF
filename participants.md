@@ -15,7 +15,7 @@
 *
 *
 *
-*
+* Igu Bellart Gilabert -- Universitat Pompeu Fabra: Humanities (Modern & Contemporary)
 *
 *
 *
